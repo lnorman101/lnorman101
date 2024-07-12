@@ -1,4 +1,4 @@
-Hello my name is Chrisanna.
+Hello my name is Chrisanna. I am a mother of 6.
 I am looking forward to learning how to code.
 - 👋 Hi, I’m @lnorman101
 - 👀 I’m interested in ...
